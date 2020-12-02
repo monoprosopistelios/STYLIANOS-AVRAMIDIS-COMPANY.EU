@@ -7,4 +7,4 @@ We offer
 
 Experience in big international companies. Contact us at stylianos.avramidis@gmail.com
 
-You can find the resume [here] (https://www.linkedin.com/in/stelios-avramidis-61b7b115a/)
+You can find the resume [here](https://www.linkedin.com/in/stelios-avramidis-61b7b115a/)
